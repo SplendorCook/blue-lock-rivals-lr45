@@ -1,4 +1,4 @@
-#  
+#  blue lock rivals smart Script is the best blue lock rivals Script, featuring private server access and one-hit kill. Safe and powerful for all your
 
 
 
